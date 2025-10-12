@@ -1,0 +1,1 @@
+# banpomingschoolptn1
